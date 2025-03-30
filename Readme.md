@@ -1,6 +1,6 @@
 # 番
 
-https://mubu.com/app/edit/home/6SaNrZZcKdW
+https://www.mubu.com/doc/15bYJgRYzdW
 
 ## 想看
 
